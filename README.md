@@ -1,2 +1,2 @@
 Ismael Alejandro Liquez Muñoz 
-no. CarnéÑ 2400064
+no. Carné: 2400064
